@@ -5,6 +5,7 @@
 
 ![Snape_Drapes](https://github.com/user-attachments/assets/392fb85b-6a89-435d-a0c2-dbaa8aa79b73)
 
+![Untitled_Artwork 5](https://github.com/user-attachments/assets/869efc2f-5799-4994-82ee-cca833e9bb07)
 
 ![Untitled_Artwork 4](https://github.com/user-attachments/assets/d2d7e2b9-ac9a-468f-8926-cefd92b9a0c0)
 
