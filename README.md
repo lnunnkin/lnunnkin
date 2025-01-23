@@ -5,6 +5,8 @@
 
 ![Snape_Drapes](https://github.com/user-attachments/assets/392fb85b-6a89-435d-a0c2-dbaa8aa79b73)
 
+[missouripic3.pdf](https://github.com/user-attachments/files/18514864/missouripic3.pdf)
+
 
 
 <!---
