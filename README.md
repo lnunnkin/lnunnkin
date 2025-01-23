@@ -17,5 +17,4 @@ You can click the Preview link to take a look at your changes.
 ![black pope 2](https://github.com/user-attachments/assets/a1e6cd1f-998e-4e0e-a07d-e2b4b0d66686)
 ![Untitled_Artwork](https://github.com/user-attachments/assets/70ad5196-2b9d-412f-9e48-5c4363f89b46)
 [missoueipics.pdf](https://github.com/user-attachments/files/18514826/missoueipics.pdf)
-[missouri pic2.pdf](https://github.com/user-attachments/files/18514831/missouri.pic2.pdf)
-[missouripics3.pdf](https://github.com/user-attachments/files/18514833/missouripics3.pdf)
+
