@@ -9,6 +9,8 @@
 
 ![Untitled_Artwork 4](https://github.com/user-attachments/assets/d2d7e2b9-ac9a-468f-8926-cefd92b9a0c0)
 
+![Untitled_Artwork](https://github.com/user-attachments/assets/f2313a5c-6106-4bbe-8082-14d14a3ecf85)
+
 
 <!---
 lnunnkin/lnunnkin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.![Money Meditation](https://github.com/user-attachments/assets/9b92161c-9467-48b1-8bac-caf18fcd0b74)
@@ -20,6 +22,6 @@ You can click the Preview link to take a look at your changes.
 ![black pope 2](https://github.com/user-attachments/assets/a1e6cd1f-998e-4e0e-a07d-e2b4b0d66686)
 ![Untitled_Artwork](https://github.com/user-attachments/assets/70ad5196-2b9d-412f-9e48-5c4363f89b46)
 [missoueipics.pdf](https://github.com/user-attachments/files/18514826/missoueipics.pdf)
-[missouri pic2.pdf](https://github.com/user-attachments/files/18514840/missouri.pic2.pdf)
 
 
+[missouripics3.pdf](https://github.com/user-attachments/files/18551193/missouripics3.pdf)
