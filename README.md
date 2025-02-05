@@ -11,11 +11,11 @@
 
 ![Untitled_Artwork](https://github.com/user-attachments/assets/f2313a5c-6106-4bbe-8082-14d14a3ecf85)
 
-![Untitled_Artwork 11](https://github.com/user-attachments/assets/d35b813a-d87a-4984-a4e9-2b84cff4311c)
+(https://github.com/user-attachments/assets/d35b813a-d87a-4984-a4e9-2b84cff4311c)
 
-![Untitled_Artwork 12](https://github.com/user-attachments/assets/e704f24b-32c6-470f-8465-a23f43d53423)
+(https://github.com/user-attachments/assets/e704f24b-32c6-470f-8465-a23f43d53423)
 
-![Untitled_Artwork 13](https://github.com/user-attachments/assets/c6792b20-2d7d-4d83-8a2f-4a0b7e30f695)
+(https://github.com/user-attachments/assets/c6792b20-2d7d-4d83-8a2f-4a0b7e30f695)
 
 <!---
 lnunnkin/lnunnkin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.![Money Meditation](https://github.com/user-attachments/assets/9b92161c-9467-48b1-8bac-caf18fcd0b74)
